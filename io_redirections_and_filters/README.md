@@ -1,0 +1,1 @@
+Pas de fenetres, pas de wifi et la connexion qui disparait
